@@ -1,2 +1,2 @@
 You can check it on youtube:
-https://youtube.com/shorts/E_vpaMSEt2o
+https://www.youtube.com/watch?v=E_vpaMSEt2o
